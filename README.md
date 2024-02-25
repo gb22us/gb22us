@@ -1,1 +1,1 @@
-Interested in exploring opportunities.Enhancing my skill set.Open to collaborations.Contact me for discussions.
+xxc
